@@ -1,4 +1,4 @@
-# 
+# rare Polymarket Module | portfolio-optimization + risk-management offers the most advanced Polymarket module, with portfolio-optimization and risk-management. Ideal for
 
 
 
